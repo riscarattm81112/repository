@@ -1,1 +1,1 @@
-Ice hockey made its Olympic debut at the 1920 Summer Olympics in Antwerp, Belgium, and has been a regular Olympic sport since the 1924 Winter Olympics.
+Olympic boxing features weight classes for men and women, with competitors wearing protective headgear and using a points-based scoring system to determine winners.
