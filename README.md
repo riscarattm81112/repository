@@ -1,1 +1,1 @@
-Olympic boxing features weight classes for men and women, with competitors wearing protective headgear and using a points-based scoring system to determine winners.
+Mike Tyson, known as "Iron Mike," became the youngest heavyweight champion in history at the age of 20 and was known for his ferocious punching power and aggressive fighting style.
