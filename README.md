@@ -1,1 +1,1 @@
-Technical knockouts (TKOs) occur when a referee stops a fight due to one fighter being unable to defend themselves or being deemed unfit to continue.
+Boxing features weight classes to ensure fair competition and safety, with fighters grouped into divisions based on their weight and physical characteristics.
