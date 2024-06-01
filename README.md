@@ -1,1 +1,1 @@
-Ice hockey made its Olympic debut at the 1920 Summer Olympics in Antwerp, Belgium, and has been a regular Olympic sport since the 1924 Winter Olympics.
+Rugby league is a separate code of rugby with its own distinct rules and competitions, including the Rugby League World Cup and domestic leagues in countries like Australia and England.
