@@ -1,1 +1,1 @@
-Rugby league is a separate code of rugby with its own distinct rules and competitions, including the Rugby League World Cup and domestic leagues in countries like Australia and England.
+New Zealand's national rugby team, the All Blacks, is one of the most successful rugby teams in history, having won the Rugby World Cup three times (1987, 2011, 2015).
