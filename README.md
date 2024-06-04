@@ -1,1 +1,1 @@
-New Zealand's national rugby team, the All Blacks, is one of the most successful rugby teams in history, having won the Rugby World Cup three times (1987, 2011, 2015).
+The Rugby School in Warwickshire, England, played a significant role in shaping the rules and development of rugby football in the 19th century.
