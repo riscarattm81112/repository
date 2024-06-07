@@ -1,1 +1,1 @@
-The British and Irish Lions is a prestigious rugby union team that tours countries like New Zealand, South Africa, and Australia every four years, playing test matches against the national teams of those countries.
+Rugby football split into two distinct codes in 1895, with the Rugby Football Union (RFU) adopting the "amateur" code, while the Northern Rugby Football Union (later Rugby Football League) formed the "professional" code.
