@@ -1,1 +1,1 @@
-Rugby football split into two distinct codes in 1895, with the Rugby Football Union (RFU) adopting the "amateur" code, while the Northern Rugby Football Union (later Rugby Football League) formed the "professional" code.
+The Hockey Hall of Fame, located in Toronto, Canada, honors the greatest players, coaches, referees, and builders of the game, preserving their legacies for future generations.
