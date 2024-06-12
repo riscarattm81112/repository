@@ -1,1 +1,1 @@
-Professional boxing organizations, such as the World Boxing Association (WBA), World Boxing Council (WBC), and International Boxing Federation (IBF), sanction world championship bouts in various weight divisions.
+The butterfly style of goaltending, where goalies drop to the ice and spread their legs to cover the lower portion of the net, is widely used to block shots.
