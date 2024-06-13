@@ -1,1 +1,1 @@
-The butterfly style of goaltending, where goalies drop to the ice and spread their legs to cover the lower portion of the net, is widely used to block shots.
+The Montreal Canadiens hold the record for the most Stanley Cup championships, with 24 titles won between 1916 and 1993.
