@@ -1,1 +1,1 @@
-The Montreal Canadiens hold the record for the most Stanley Cup championships, with 24 titles won between 1916 and 1993.
+Rugby league is a separate code of rugby with its own distinct rules and competitions, including the Rugby League World Cup and domestic leagues in countries like Australia and England.
