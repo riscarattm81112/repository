@@ -1,1 +1,1 @@
-Rugby league is a separate code of rugby with its own distinct rules and competitions, including the Rugby League World Cup and domestic leagues in countries like Australia and England.
+The Hockey Hall of Fame, located in Toronto, Canada, honors the greatest players, coaches, referees, and builders of the game, preserving their legacies for future generations.
