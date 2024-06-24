@@ -1,1 +1,1 @@
-Rugby originated in England in the early 19th century, with the game's roots traced back to traditional ball games played in schools and villages.
+The Rugby School in Warwickshire, England, played a significant role in shaping the rules and development of rugby football in the 19th century.
