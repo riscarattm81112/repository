@@ -1,1 +1,1 @@
-New Zealand's national rugby team, the All Blacks, is one of the most successful rugby teams in history, having won the Rugby World Cup three times (1987, 2011, 2015).
+Rugby league originated as a breakaway from rugby union in 1895, with clubs in northern England forming the Northern Rugby Football Union (later Rugby Football League) due to disputes over player compensation.
