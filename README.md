@@ -1,1 +1,1 @@
-Rugby league originated as a breakaway from rugby union in 1895, with clubs in northern England forming the Northern Rugby Football Union (later Rugby Football League) due to disputes over player compensation.
+Rugby league features 13 players per team and emphasizes speed and fluidity of play, with fewer set pieces (such as scrums and lineouts) compared to rugby union.
