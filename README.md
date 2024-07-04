@@ -1,1 +1,1 @@
-Rugby league features 13 players per team and emphasizes speed and fluidity of play, with fewer set pieces (such as scrums and lineouts) compared to rugby union.
+Fighters may move up or down weight classes throughout their careers to pursue championship titles or compete against opponents of similar size and skill level.
