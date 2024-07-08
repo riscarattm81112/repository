@@ -1,1 +1,1 @@
-Fighters may move up or down weight classes throughout their careers to pursue championship titles or compete against opponents of similar size and skill level.
+Body checking, where players use their bodies to block or knock opponents off the puck, is a legal and integral part of ice hockey, especially in North America.
