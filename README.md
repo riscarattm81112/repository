@@ -1,1 +1,1 @@
-Body checking, where players use their bodies to block or knock opponents off the puck, is a legal and integral part of ice hockey, especially in North America.
+The Rugby School in Warwickshire, England, played a significant role in shaping the rules and development of rugby football in the 19th century.
