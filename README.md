@@ -1,1 +1,1 @@
-The Rugby School in Warwickshire, England, played a significant role in shaping the rules and development of rugby football in the 19th century.
+The International Ice Hockey Federation (IIHF) was founded in 1908 to govern international ice hockey competitions and promote the sport worldwide.
