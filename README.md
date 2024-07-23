@@ -1,1 +1,1 @@
-The origins of hockey can be traced back to ancient civilizations, with games resembling modern hockey played on ice and fields as early as 4,000 years ago.
+Wayne Gretzky, known as "The Great One," holds numerous NHL records, including most career goals (894) and most career points (2,857).
