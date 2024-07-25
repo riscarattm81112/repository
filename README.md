@@ -1,1 +1,1 @@
-Boxing features weight classes to ensure fair competition and safety, with fighters grouped into divisions based on their weight and physical characteristics.
+Mike Tyson, known as "Iron Mike," became the youngest heavyweight champion in history at the age of 20 and was known for his ferocious punching power and aggressive fighting style.
