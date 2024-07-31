@@ -1,1 +1,1 @@
-Body checking, where players use their bodies to block or knock opponents off the puck, is a legal and integral part of ice hockey, especially in North America.
+The modern sport of boxing evolved in England during the 18th century, with the first documented boxing rules established in 1743 by the London Prize Ring rules.
