@@ -1,1 +1,1 @@
-Body checking, where players use their bodies to block or knock opponents off the puck, is a legal and integral part of ice hockey, especially in North America.
+The British and Irish Lions is a prestigious rugby union team that tours countries like New Zealand, South Africa, and Australia every four years, playing test matches against the national teams of those countries.
